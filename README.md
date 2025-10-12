@@ -1,4 +1,4 @@
-<img width="1000" height="600" alt="Untitled_design-removebg-preview" src="https://github.com/user-attachments/assets/7c41770e-01fa-41d7-8c84-b2d79ecbc2c5" />
+<img width="700" height="700" alt="Untitled_design-removebg-preview" src="https://github.com/user-attachments/assets/7c41770e-01fa-41d7-8c84-b2d79ecbc2c5" />
 
 
 <!--
