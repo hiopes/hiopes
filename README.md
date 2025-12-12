@@ -1,4 +1,14 @@
-<img width="1000" height="600" alt="Untitled_design-removebg-preview" src="https://github.com/user-attachments/assets/7c41770e-01fa-41d7-8c84-b2d79ecbc2c5" />
+<p align="center">
+
+<img align = center width="457" height="457" alt="parfies" src="https://github.com/user-attachments/assets/44907d8d-381a-4019-91f2-70b52a2abdd4" />
+hallo,⠀ you'll usually find me as ashswag near docks
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀➤⠀[ata](https://hiopes.atabook.org/)⠀︵⠀[rentry](https://rentry.co/hiopes)⠀꒰⠀[color my tree!](https://colormytree.me/2025/01KBSJANHFAPKX6ZM2XHQW640N)
+
+
+
+
+
 
 <!--
 **hiopes/hiopes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
