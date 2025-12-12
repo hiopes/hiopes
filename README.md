@@ -5,7 +5,7 @@ hallo,⠀ you'll usually find me as ashswag near docks
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀➤⠀[ata](https://hiopes.atabook.org/)⠀︵⠀[rentry](https://rentry.co/hiopes)⠀꒰⠀[color my tree!](https://colormytree.me/2025/01KBSJANHFAPKX6ZM2XHQW640N)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![deaths](https://komarev.com/ghpvc/?username=hiopes)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/hiopes.svg?label=spyglasses&extraCount=108&color=8a66bd&labelColor=596358)](https://hits.sh/github.com/hiopes/)
 
 
 
