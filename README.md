@@ -4,7 +4,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀   ⠀⠀ ⠀⠀hallo,⠀you'll usually find me as **ash**<ins>swag</ins>/**uu** skins on the benches near docks ^_^,,
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀꒰⠀[ata](https://hiopes.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/hiopes)⠀ꕀ⠀[color my tree!](https://colormytree.me/2025/01KBSJANHFAPKX6ZM2XHQW640N)⠀꒱
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀꒰⠀[ata](https://hiopes.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/hiopes)⠀ꕀ⠀[working on strawp]()⠀꒱
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀[![Hits](https://hits.sh/github.com/hiopes.svg?label=spyglasses&extraCount=108&color=8a66bd&labelColor=596358)](https://hits.sh/github.com/hiopes/)
 
