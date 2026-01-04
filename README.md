@@ -16,9 +16,6 @@ $${\color{lightgreen}links}$$
 
 
 <!--
-<img width="512" height="87" alt="IMG_20260105_032102" src="https://github.com/user-attachments/assets/d47be1d6-96cc-4947-ac25-a88300415dfc" />
-<img width="512" height="87" alt="IMG_20260105_032130" src="https://github.com/user-attachments/assets/22582eaa-bcd9-40c8-b9b5-3a0d0277b4b8" />
-
 
 **hiopes/hiopes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
