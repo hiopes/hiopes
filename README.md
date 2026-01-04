@@ -7,9 +7,9 @@ $${\color{lightgreen}"I'll \space \color{lightgreen}remember \space \color{orang
 
   $${\color{lightgreen}links}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀꒰⠀[ata](https://hiopes.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/hiopes)⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀⠀⠀꒰⠀[ata](https://hiopes.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/hiopes)⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀  ⠀ ⠀ ⠀⠀⠀note 2 self to add more stuff later
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀ ⠀⠀⠀note 2 self to add more stuff later
 </p>
 
 
