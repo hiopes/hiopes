@@ -7,7 +7,7 @@ $${\color{lightgreen}"I'll \space \color{lightgreen}remember \space \color{orang
 
 $${\color{lightgreen}links}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    ⠀ ⠀⠀⠀⠀⠀꒰⠀[ata](https://hiopes.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/hiopes)⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱⠀⠀![bread7](https://github.com/user-attachments/assets/7591ac8d-0674-4a9d-95af-92ea370c7485)⠀![paw3](https://github.com/user-attachments/assets/b7bc4779-4304-4a41-afa0-3db4b496027a)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀ ⠀⠀⠀⠀⠀꒰⠀[ata](https://hiopes.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/hiopes)⠀𓏻⠀[strawpage](https://parrotwifies.straw.page/)⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱⠀⠀![bread7](https://github.com/user-attachments/assets/7591ac8d-0674-4a9d-95af-92ea370c7485)⠀![paw3](https://github.com/user-attachments/assets/b7bc4779-4304-4a41-afa0-3db4b496027a)
 
 $${\color{white}feed \space \color{white}my  \space \color{white}{child.}} $$	
 
