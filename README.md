@@ -23,7 +23,7 @@ $${\color{white}feed \space \color{white}my  \space \color{white}{child.}} $$
 </p>
 
 <p align="center">
-note 2 self to add more stuff later
+sorry to mobile people
 </p>
 
 <!--
