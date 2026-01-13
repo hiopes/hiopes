@@ -27,6 +27,7 @@ rmk again soon enougb ok, expect it. it may be sooner than you think. you dont k
 </p>
 
 <!--
+<img width="592" height="432" alt="IMG_20260113_233701" src="https://github.com/user-attachments/assets/8d9de226-0d06-4eac-91ac-2cef14af66fc" />
 
 **hiopes/hiopes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
