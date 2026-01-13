@@ -23,7 +23,7 @@ $${\color{white}feed \space \color{white}my  \space \color{white}{child.}} $$
 </p>
 
 <p align="center">
-sorry to mobile users
+rmk again soon enougb ok, expect it. it may be sooner than you think. you dont know, but neither do i.
 </p>
 
 <!--
