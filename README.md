@@ -24,7 +24,7 @@ $${\color{#2e514a}feed \space \color{#2e514a}my  \space \color{#2e514a}{child.}}
 </p>
 
 <p align="center">
-rmk again soon enougb ok, expect it. it may be sooner than you think. you dont know, but neither do i.
+sorry to mobile users
 </p>
 
 <!--
