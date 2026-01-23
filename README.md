@@ -1,6 +1,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀[!["contestants .](https://hits.sh/github.com/hiopes.svg?label=%22contestants%20.&extraCount=105&color=2e514a&labelColor=05061b)](https://hits.sh/github.com/hiopes/)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀lowkenuinely changed my [main](https://github.com/kkyomoto)
 
 <p align="center">
 <img width="492" height="332" alt="IMG_20260113_233701" src="https://github.com/user-attachments/assets/8d9de226-0d06-4eac-91ac-2cef14af66fc" />
