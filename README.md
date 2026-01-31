@@ -5,7 +5,7 @@
 <img width="492" height="332" alt="IMG_20260113_233701" src="https://github.com/user-attachments/assets/8d9de226-0d06-4eac-91ac-2cef14af66fc" />
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰⠀[atabook](https://kkymoto.atabook.org/)⠀𓏻⠀[rentry](https://rentry.co/kkymoto)⠀⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱⠀⠀![bread7](https://github.com/user-attachments/assets/7591ac8d-0674-4a9d-95af-92ea370c7485)⠀![paw3](https://github.com/user-attachments/assets/b7bc4779-4304-4a41-afa0-3db4b496027a)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰⠀[atabook](https://kkymoto.atabook.org/)⠀𓏻⠀⠀[rentry](https://rentry.co/kkymoto)⠀⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱⠀⠀![bread7](https://github.com/user-attachments/assets/7591ac8d-0674-4a9d-95af-92ea370c7485)⠀![paw3](https://github.com/user-attachments/assets/b7bc4779-4304-4a41-afa0-3db4b496027a)
 
 $${\color{#2e514a}feed \space \color{#2e514a}my  \space \color{#2e514a}{child.}} $$	
 
