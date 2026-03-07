@@ -1,6 +1,11 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀[!["contestants .](https://hits.sh/github.com/hiopes.svg?label=%22contestants%20.&extraCount=105&color=2e514a&labelColor=05061b)](https://hits.sh/github.com/hiopes/)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://kkymoto.atabook.org/)⠀[rentry](https://rentry.org/kkymoto)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="348" height="348" alt="Untitled388_20260307183954" src="https://github.com/user-attachments/assets/d8b8c593-80ec-4d00-a6b1-9855b5abcc97" />
+<p align = center>
+ c*h always and encㅤ, w2i pref
+</p>
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤ⠀⠀[atabook](https://kkymoto.atabook.org/)ㅤㅤ[rentry](https://rentry.org/kkymoto)ㅤㅤ[prns.cc](https://prns.cc/brgeo)
  
 
 <!--
