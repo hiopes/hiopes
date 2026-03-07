@@ -7,7 +7,7 @@
  ㅤㅤ⠀c*h always and encㅤ, w2i pref
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤ⠀⠀⠀ [atabook](https://kkymoto.atabook.org/)ㅤㅤ[rentry](https://rentry.org/kkymoto)ㅤㅤ[prns.cc](https://prns.cc/brgeo)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤ⠀⠀⠀ [atabook](https://fraction.atabook.org/)ㅤㅤ[rentry](https://rentry.org/kkymoto)ㅤㅤ[prns.cc](https://prns.cc/brgeo)
  
 
 <!--
