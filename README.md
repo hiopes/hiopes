@@ -1,8 +1,5 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀[!["contestants .](https://hits.sh/github.com/hiopes.svg?label=%22contestants%20.&extraCount=105&color=2e514a&labelColor=05061b)](https://hits.sh/github.com/hiopes/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ <a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?style=plastic&label=%E3%85%A4SORROW.%E3%85%A4&color=c70225&labelColor=1c202c"/></a>
 
-<p align = center>
- ㅤㅤ⠀SORROW.
-</p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="348" height="348" alt="Untitled388_20260307183954" src="https://github.com/user-attachments/assets/d8b8c593-80ec-4d00-a6b1-9855b5abcc97" />
 
