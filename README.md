@@ -6,6 +6,9 @@
 <!--
 <img width="592" height="432" alt="IMG_20260113_233701" src="https://github.com/user-attachments/assets/8d9de226-0d06-4eac-91ac-2cef14af66fc" />
 
+<img width="2048" height="2048" alt="Untitled388_20260307183954" src="https://github.com/user-attachments/assets/d8b8c593-80ec-4d00-a6b1-9855b5abcc97" />
+
+
 **hiopes/hiopes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
