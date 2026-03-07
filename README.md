@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀[!["contestants .](https://hits.sh/github.com/hiopes.svg?label=%22contestants%20.&extraCount=105&color=2e514a&labelColor=05061b)](https://hits.sh/github.com/hiopes/)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰⠀[atabook](https://kkymoto.atabook.org/)⠀𓏻⠀⠀[rentry](https://rentry.org/kkymoto)⠀⠀𓏻⠀[tamanotchi](https://tamanotchi.world/28792c)⠀꒱
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://kkymoto.atabook.org/)⠀[rentry](https://rentry.org/kkymoto)
  
 
 <!--
